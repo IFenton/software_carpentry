@@ -11,6 +11,13 @@ And their wild reverberations
 As of thunder in the mountains.
 
 I would answer I would tell you.
+From the forest and the prairies
+From the Great Lakes of the Northland
+From the land of the Ojibways
+From the land of the Dacotahs
+From the mountains, moors and fenlands
+Where the Heron, the Shu-shu-ga
+Feeds among the reeds and rushes
 
 
 Daffodils
