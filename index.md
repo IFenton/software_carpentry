@@ -50,5 +50,6 @@ And yet don't look too good or talk to wise
 
 If you can dream - and not make dreams your master
 If you can think - and not make thoughts your aim
+If you can meet Disaster from Triumph
 
 
