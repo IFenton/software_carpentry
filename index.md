@@ -19,6 +19,10 @@ From the mountains, moors and fenlands
 Where the Heron, the Shu-shu-ga
 Feeds among the reeds and rushes
 
+I repeat them as I heard them,
+From the lips of Nawadahah
+The musician, the sweet singer
+
 
 Daffodils
 =========
