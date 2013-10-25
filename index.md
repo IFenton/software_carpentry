@@ -49,6 +49,6 @@ Or being hated don't give way to hating
 And yet don't look too good or talk to wise
 
 If you can dream - and not make dreams your master
-
+If you can think - and not make thoughts your aim
 
 
